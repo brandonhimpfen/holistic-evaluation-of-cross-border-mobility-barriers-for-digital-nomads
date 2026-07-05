@@ -1,1 +1,1 @@
-# holistic-evaluation-of-cross-border-mobility-barriers-for-digital-nomads
+# Holistic Evaluation of Cross-Border Mobility Barriers for Digital Nomads 
